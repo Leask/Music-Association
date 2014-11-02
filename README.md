@@ -1,4 +1,4 @@
 Music Association
 =================
 
-All the designs I made for my Music Association in college time
+All the designs I made for my Music Association in college time.
